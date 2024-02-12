@@ -1,0 +1,2 @@
+# MYANMAR_FB_AUTO_CREATE
+@everyone
